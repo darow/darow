@@ -1,3 +1,1 @@
-👋
-
-
+stay hungry stay foolish
